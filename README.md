@@ -3,7 +3,7 @@
 
 Urlsine snip kurup çekemeyen tayfa sizi.
 
-ingiltereli x telepatia x morvay
+ingiltereli x morvay
 
 
 
