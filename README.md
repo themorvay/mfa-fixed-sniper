@@ -3,7 +3,7 @@
 
 Urlsine snip kurup çekemeyen tayfa sizi.
 
-ingiltereli x morvay
+morvay
 
 
 
